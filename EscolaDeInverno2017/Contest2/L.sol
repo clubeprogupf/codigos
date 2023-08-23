@@ -1,4 +1,0 @@
-Paula
-Carlos
-Paula
-Paula

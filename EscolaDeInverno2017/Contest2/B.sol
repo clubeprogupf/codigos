@@ -1,4 +1,0 @@
-Poodle
-Pooooooooooodle
-Pooooodle
-Poooooooooooooooodle
